@@ -1,6 +1,6 @@
 ##
 
-Actually not looking for work. Only studying to be better.
+Actually, not looking for work. Only studying to be better.
 
 ##
 
